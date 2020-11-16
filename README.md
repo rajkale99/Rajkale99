@@ -1,4 +1,4 @@
-### Hi there, this is Dr. raj Kale
+### Hi there, this is Dr. Raj Kale
 
 <img src="https://komarev.com/ghpvc/?username=Rajkale99&style=flat-square" alt="rajkale99" /><br>
 
